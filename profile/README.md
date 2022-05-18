@@ -1,1 +1,1 @@
-➡️ https://github.com/VadimMalykhin/binance-icons
+📌 https://github.com/VadimMalykhin/binance-icons
